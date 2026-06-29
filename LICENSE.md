@@ -1,4 +1,4 @@
-# 
+# Seguro FL Studio plugins para Mac OS | Atualizado FL Studio plugins para PC Windows. Com gravação de macro e codificação de vídeo — otimizado para máximo desempenho em cada plataforma.
 
 
 
